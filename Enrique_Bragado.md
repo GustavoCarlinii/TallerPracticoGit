@@ -1,0 +1,1 @@
+Hola soy Enrique , soy un Tecnico Electromecanico, curse ingenieria Electromecanica y ahora curso Programacion.
