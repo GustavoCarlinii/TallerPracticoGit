@@ -1,1 +1,0 @@
-hola soy maximo barbero recibido como tecnico electromecanico y actualmente curso en UTN la tecnicatura en programacion.
